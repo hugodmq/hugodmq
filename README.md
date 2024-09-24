@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @hugodmq
+- 👀 I’m interested in map automation
+- 🌱 I’m currently learning python and java for map output automation and statistical analysis
+- 💞️ I’m looking to collaborate on envirnmental planning, management and modelling
+- 📫 How to reach me hugodmqq@gmail.com
+- 😄 Pronouns: alien
+- ⚡ Fun fact: i love icecream
